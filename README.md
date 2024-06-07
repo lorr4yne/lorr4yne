@@ -1,16 +1,30 @@
-## Hi there 👋
+## seja bem vindo ao meu perfil 🐦‍⬛ 
+meu nome e lorrayne 
 
-<!--
-**lorr4yne/lorr4yne** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
+- eu gosto de fazer o cabelo
+- gosto de fazer as unhas 
+- gosto de doce 
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+### voce pode entrar em contato comigo 👨‍🦲
+lorrayne121106@gmail.com
+
+loo_clima 
+
+
+
+
+
+
+
+
+![](https://media1.tenor.com/m/fbyAUHguIVIAAAAC/belissima-ok.gif) 
+
+
+
+
+
+
+
+
+
